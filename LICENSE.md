@@ -1,4 +1,4 @@
-
+Todoist for macOS secure Integration: auto-sync & custom shortcuts offers the most advanced Todoist for macOS integration, with auto-sync and custom shortcuts. Ideal for
 
 
 
